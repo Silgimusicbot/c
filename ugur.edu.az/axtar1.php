@@ -1,0 +1,1 @@
+No Content: https://ugur.edu.az/axtar1.php
